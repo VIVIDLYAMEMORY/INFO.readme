@@ -9,7 +9,7 @@ nnew info. abt me
 
 Hello! This is Vivid speaking. i use She / him pronouns, I'm transmasc. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/6beb39ba-43b7-4d78-ae51-8d48afe13047" /> i like defect rebel
 i'm very silly at times and i sometimes do use tonetags, if i say something that's offensive to you [which would be more of a joke] please don't get mad. my humor is kind of messed up so yeah <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b77f6083-d8ef-4154-ac67-c60588ab32ce" /> i have very good memory [trust ^w^]
-i'm also chaotic if i get a little too comfortable, and i'm a fast typer so my words are a bit fumbled. I'm also semi verbal unless friend. i mostly reply/speak by whispers.
+i'm also chaotic if i get a little too comfortable, and i'm a fast typer so my words are a bit fumbled.
 
 <img width="1280" height="140" alt="image" src="https://github.com/user-attachments/assets/5e2e0996-2cd3-4fc4-a67c-318fcc0b40f0" />
 
