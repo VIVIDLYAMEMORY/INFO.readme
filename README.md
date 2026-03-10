@@ -7,7 +7,7 @@ nnew info. abt me
 ---
 
 
-Hello! This is Vivid speaking. i use She / him pronouns, I'm transmasc. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/6beb39ba-43b7-4d78-ae51-8d48afe13047" /> i like defect rebel
+Hello! This is Vivid speaking. i use He / him pronouns, I'm transmasc. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/6beb39ba-43b7-4d78-ae51-8d48afe13047" /> i like defect rebel & Player [ppt] ^_^
 i'm very silly at times and i sometimes do use tonetags, if i say something that's offensive to you [which would be more of a joke] please don't get mad. my humor is kind of messed up so yeah <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b77f6083-d8ef-4154-ac67-c60588ab32ce" /> i have very good memory [trust ^w^]
 i'm also chaotic if i get a little too comfortable, and i'm a fast typer so my words are a bit fumbled.
 
@@ -24,7 +24,7 @@ If you know me in the past, please don't call me by my deadname. <img width="20"
 Interests<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/ef965f4a-542f-46e1-8ee7-8ffd6c0701c1" />
 ---
 
-I like movement games, horror genres, and visual novels such as.. Evade, Hannibal, supernatural, unstable universe, lifesteal, state smp, limbus company, Case 1225, bad things, mortal kombat, tower blitz. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/2e574dd9-7f37-4c09-99cb-e5c32ef356f7" />
+I like movement games, horror genres, and visual novels such as.. Evade, Hannibal, supernatural, unstable universe, lifesteal, state smp, limbus company, Case 1225, bad things, mortal kombat, tower blitz, Poppy Playtime. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/2e574dd9-7f37-4c09-99cb-e5c32ef356f7" />
 
 
 my music interests are also by laufey, tame impala, beabadoobe, nastyona, miss construction, Mom, toxic lipstick, frank sinatra, she & him, the marias, azali, addison rae, loveli lori, the stranglers, the beatles, nombra101, the little dippers, radiohead, alan walker [YES I STILL LISTEN TO HIM TILL THIS DAY], and one, crxw, ke$ha, ilyhiryu, 77yolan, lemon demon. i'm the biggest laufey fan <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/c731e9ee-146c-4855-8253-71ba9e5b799e" />
