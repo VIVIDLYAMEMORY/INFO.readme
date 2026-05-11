@@ -1,4 +1,4 @@
-hi so pls read strawpage (u can also sign ata in the meantime ok)
+hi so pls read strawpage iDONT KNOW HOWTO DELETE THIS YET
 
 
 
